@@ -1,5 +1,2 @@
 - 👋 Hi, I’m @Marce1o
 - 👀 I’m interested in cats
-- 🌱 I’m currently learning life lessons
-- 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me wa.me/5218120351783
